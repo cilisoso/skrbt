@@ -1,7 +1,8 @@
 <h2>SkrBT磁力官网入口 - BT磁力搜索引擎导航最新网站网页网址</h2>
 <p>SkrBT磁力是一个专业的种子搜索和磁力链接搜索引擎，专注于从DHT网络爬取种子和磁力链接。目前，该网站已经索引了上千万条磁力链接，资源涵盖电影、剧集、音乐、图书、图片、综艺节目、软件、动漫、教程、游戏等多个领域。作为全银河系资源最丰富的种子搜索和磁力链接搜索专业网站，SkrBT致力于为用户提供快速、高效的资源获取体验。</p>
-<p><strong>一键访问：</strong><a href="https://www.litxdh.com/sites/skrbt.html"><strong>SkrBT最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://skrbt.sodanav.com/"><strong>SkrBT最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>资源丰富</strong>：索引了上千万的磁力链接，涵盖多种类型的资源。</p>
